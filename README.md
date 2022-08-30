@@ -1,2 +1,2 @@
-# jp-ico
+# Japan (Icon Pack)
 Japan (Icon Pack)
